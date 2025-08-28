@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Duy Nguyen!  
+# 👋 Hi, I'm Dang Duy Nguyen!  
 
 🚀 **Software Engineer | Lifelong Learner**  
 
